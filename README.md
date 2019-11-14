@@ -6,3 +6,4 @@ While 'A diamond is forever', in fact, is a trick for centuries, anyone who want
 We go into a jewelry stone, stand in front of the jewelry cabinet, and find ourselves have no any idea about diamond.
 We find for help on the Internet, but get something copied, outtime and unuseful.
 So, Let's fuck gemstone in the knowledge's ocean! 
+Let's fuck gemstone in the knowledge's ocean! 
